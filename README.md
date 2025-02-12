@@ -1,2 +1,4 @@
 # Miro-
 Entrega de wireframe ecommerce personal 
+Anahi Pinto 
+https://miro.com/welcomeonboard/V2dqaEdqVmo3ZkJ1YjJNQncwUmwraE5GZUhlb2JPT1JBa0xBdUJkSFhicjByUVVJd3h5QmFtV0xYdzAzUzdqdDFYSEJadHJzcjhSVVl0TDhHTWxISDBIVlNsREptaklqUXRzeUxvS3M2VzkwbnZpL2tYNEVicmZuRE5pRTI1aVhBd044SHFHaVlWYWk0d3NxeHNmeG9BPT0hdjE=?share_link_id=668509003121
